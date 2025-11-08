@@ -1,1 +1,0 @@
-# Artificial-Intelligence-Practical-s
